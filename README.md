@@ -1,2 +1,1 @@
-# Situsku-html.
-Membangun dan pengembangan website 
+http://suarainaja3-iocsj.wordpress.com
